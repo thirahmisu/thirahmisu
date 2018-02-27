@@ -1,2 +1,0 @@
-# thirahmisu
-My website journey
